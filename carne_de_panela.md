@@ -10,7 +10,7 @@ Ingredientes
 2 dentes de alho picado
 sal e pimenta do reino a gosto
 1 colher (sopa) de colorau (opcional)
-1 xícara (chá) de água
+2 xícara (chá) de água
 salsinha picada a gosto
 
 Modo de Preparo
